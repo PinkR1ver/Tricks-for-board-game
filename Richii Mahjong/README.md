@@ -1,0 +1,1 @@
+#Tricks for Richii Mahjong
